@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi it's Qu 🔥
+- 🤔 I'm currently thinking
+
 
 <!--
 **QuZydor/QuZydor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
